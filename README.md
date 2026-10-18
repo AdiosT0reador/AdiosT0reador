@@ -1,17 +1,12 @@
 <div align="center">
-<img width="1199" height="563" alt="image" src="https://github.com/user-attachments/assets/73c1a3b1-44f2-4034-aead-ac10dbcb9dd1" />
 
 
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3500&pause=22&color=83281F&center=true&vCenter=true&width=435&lines=%E2%9D%9D+"I+Forgive+you.+.+%E2%9D%9E)
+  </div>
 
-  <!-- LINKS -->
-<p align="center">  <a href="https://guns.lol/deepforest.tt">♟</a>
-    <!-- LINKS -->
-<p align="center">  <a href="https://creepyhorseeeexxx.atabook.org/">🎲</a>
-  <!-- LINKS -->
-<p align="center">  <a href="https://ar.pinterest.com/7yuk1/">♠</a>
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3500&pause=22&color=5252bb**&center=true&vCenter=true&width=435&lines=%E2%9D%9D+Really?+-;i+dont+Know+what+to+say+.+%E2%9D%9D)
 
-<br>
-
-
+  <br>
+  <img width="734" height="413" alt="image" src="https://github.com/user-attachments/assets/d8138655-5ed6-459a-b87e-e207f64941ef" />
 
 
