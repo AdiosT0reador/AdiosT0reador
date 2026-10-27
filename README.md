@@ -1,6 +1,6 @@
 <div align="center">
 
-amo a mis cutes potatos
+amo a mis amigos
 
 <br>
 
