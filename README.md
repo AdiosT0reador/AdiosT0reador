@@ -1,9 +1,10 @@
 <div align="center">
 
-wip xoxo
+amo a mis cutes potatos
 
 <br>
 
-<img width="735" height="1054" alt="image" src="https://github.com/user-attachments/assets/b194e462-7f59-4d51-83a2-ab84dba48c81" />
+<img width="540" height="320" alt="image" src="https://github.com/user-attachments/assets/16d22abd-9130-4e64-9b13-589fce53f028" />
+
 
 
