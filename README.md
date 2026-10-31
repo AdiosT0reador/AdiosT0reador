@@ -1,10 +1,10 @@
 <div align="center">
 
-amo a mis amigos
 
+♡
 <br>
 
-<img width="540" height="320" alt="image" src="https://github.com/user-attachments/assets/16d22abd-9130-4e64-9b13-589fce53f028" />
+<img width="690" height="278" alt="image" src="https://github.com/user-attachments/assets/998e55b1-10d3-4524-ac15-0b72015491c1" />
 
 
 
