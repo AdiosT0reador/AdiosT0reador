@@ -11,9 +11,9 @@
 
 
   <!-- LINKS -->
-<p align="center">  <a href="https://github.com/music-town">Pony Towns compliment song</a>
+<p align="center">  <a href="https://github.com/music-town">Music Towns compliment song</a>
   <!-- LINKS -->
-<p align="center">  <a href="https://github.com/pt-of-forsaken"> pony towns 1# elliot lover</a>
+<p align="center">  <a href="https://github.com/pt-of-forsaken"> pt-of-frsk 1# elliot lover</a>
 
 
 
