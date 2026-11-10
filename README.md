@@ -26,6 +26,6 @@ do you belive in ♡ at first sight?  do you belive in fate?
 <br>
 
 
-Creds to the artists
+
 
 
