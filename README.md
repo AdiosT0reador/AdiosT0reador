@@ -20,7 +20,7 @@ do you belive in ♡ at first sight?  do you belive in fate?
   <!-- LINKS -->
 <p align="center">  <a href="https://github.com/pt-of-forsaken"> pt-of-frsk 1# elliot lover</a>
 
-<p align="center">  <a href="https://github.com/pt-friendships"> pt-friendships ♡</a>
+<p align="center">  <a href="https://github.com/pt-friendships"> pt-friendships ILYSM GUYSS♡</a>
 
 
 <br>
