@@ -1,10 +1,15 @@
 <div align="center">
 
 
-♡
+do you belive in ♡ at first sight?  do you belive in fate?
 <br>
 
-<img width="736" height="441" alt="image" src="https://github.com/user-attachments/assets/87d90171-da4e-440d-aa82-72a00d11d01d" />
+／
+
+<br>
+
+<img width="736" height="481" alt="image" src="https://github.com/user-attachments/assets/9e37cde8-9eaa-46c1-bc37-191073fd5972" />
+
 
 
 <br>
@@ -15,5 +20,12 @@
   <!-- LINKS -->
 <p align="center">  <a href="https://github.com/pt-of-forsaken"> pt-of-frsk 1# elliot lover</a>
 
+<p align="center">  <a href="https://github.com/pt-of-forsaken"> pt-friendships ♡</a>
+
+
+<br>
+
+
+Creds to the artists
 
 
