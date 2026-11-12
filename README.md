@@ -22,7 +22,7 @@ do you belive in ♡ at first sight?  do you belive in fate?
 
 <p align="center">  <a href="https://github.com/pt-friendships"> pt-friendships ILYSM GUYSS♡</a>
 
-
+<p align="center">  <a href="https://github.com/pt-everypony"> pt-everyponys bobette (DW) !!</a>
 <br>
 
 
