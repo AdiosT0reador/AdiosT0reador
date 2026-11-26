@@ -11,7 +11,7 @@
 <p align="center">
 
   <img src="https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3000&pause=9000&color=833B95&width=300&lines=Yuri+ou+Sword+." /> 
-  <img src="https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3000&pause=9000&color=833B95&width=300&lines=She+/+Her+." />
+  <img src="https://readme-typing-svg.demolab.com?font=Times+New+Roman&size=20&duration=3000&pause=9000&color=FFFFFF&width=300&lines=She+/+Her+." />
 </div>
 
 
